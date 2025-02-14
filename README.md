@@ -1,5 +1,5 @@
 # Daniel Pereira Assunção
-Olá, me chamo Daniel, tenho 19 anos, e sou uma pessoa sonhadora que está disposta a mudar o mundo! 
+Olá, me chamo Daniel, tenho 20 anos, e sou uma pessoa sonhadora que está disposta a mudar o mundo! 
 
 Tenho ambição em começar projetos do zero, sei trabalhar em equipe e gosto de liderar pessoas para atingir o objetivo final com sucesso.
 
